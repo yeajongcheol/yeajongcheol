@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cyber Security
 - 🌱 I’m currently learning forensic
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me naver-youjin7805@naver.com / 
+- 📫 How to reach me naver- youjin7805@naver.com / 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
